@@ -1,16 +1,23 @@
-### Hi there 👋
+😎 I'm Hamed
+🔭 I’m currently working on something cool
+🌱 I’m currently learning everything 🤣
+👯 I’m looking to collaborate on open source projects
+⚡ Fun fact: I'm a Gamer
+📃 Contact
+IntelligentQuantum-ProtonMail IntelligentQuantum-Instagram IntelligentQuantum-Discord
 
-<!--
-**nooshinmoqanian/NooshinMoqanian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+IntelligentQuantum-Discord
+🏷️ Github Stats
+IntelligentQuantum's Top Languages
+IntelligentQuantum's Github Stats
+IntelligentQuantum's Github Stats
+IntelligentQuantum's Activity Graph
+⚡ Skills
+#	#	#	#
+			
+			
+			
+			
+			
+	#	#	#
+	#	#
